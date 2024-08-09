@@ -5,7 +5,7 @@ I build cohesive and high-performing teams where everyone feels heard and value
 
 > Leadership isn't a privilege to do less, it's a responsibility to do more.
 
-I can do more, _do you?_ 💪
+I can do more, _do you?_ 😎
 
 ____
 
