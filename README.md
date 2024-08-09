@@ -1,11 +1,11 @@
 ### Hi, I'm Inna 👩‍💻 nice e-meeting you 👋 
 I'm an ex-Dev Team Lead of the Fiverr Logo Maker project. I have 7+ years in IT and 2+ years in leadership.</br>
-I am committed to delivering complex yet _aesthetic_ user-centric software solutions. I love to explore and learn new things.</br>
+I am committed to delivering complex yet ✨ _aesthetic_ ✨ user-centric software solutions. I love to explore and learn new things.</br>
 I build cohesive and high-performing teams where everyone feels heard and valued.
 
 > Leadership isn't a privilege to do less, it's a responsibility to do more.
 
-I can do more, do you?
+I can do more, _do you?_ 💪
 
 ____
 
@@ -15,4 +15,7 @@ ____
 * 💬 Ask me anything, and I'll find an answer for you
 * 📫 How to reach me: [linkedin](https://www.linkedin.com/in/inna-ditiashova/)
 * 🫶 Pronouns: she/her
-* ⚡ Fun fact: 🍌 are berries, but 🍓 aren't. 
+* ⚡ Fun fact: 🍌 are berries, but 🍓 aren't
+* 👩‍⚖️ Inna is an [Advocate (INFJ-A)](https://www.16personalities.com/profiles/b25a700d3d4d8)
+* 💪 Arranger | Analytical | Competition | Strategic | Ideation</br>
+  <img width="400" alt="Screenshot 2024-08-09 at 15 42 55" src="https://github.com/user-attachments/assets/9afd3f5a-9989-40be-b380-38e47f791ef1">
