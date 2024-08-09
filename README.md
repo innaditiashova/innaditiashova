@@ -1,6 +1,6 @@
 ### Hi, I'm Inna 👩‍💻 nice e-meeting you 👋 
 Former Dev Team Lead of the [Fiverr Logo Maker](https://www.fiverr.com/logo-maker) project. I have 7+ years of experience in Web Development and 2+ years in leadership.</br>
-I am committed to delivering complex yet ✨ _aesthetic_ ✨ user-centric software solutions. Love to explore and learn new things 🕵️‍♀️.</br>
+Committed to delivering complex yet ✨ _aesthetic_ ✨ user-centric software solutions. Love to explore and learn new things 🕵️‍♀️.</br>
 I build cohesive and high-performing teams where everyone feels heard and valued.
 
 > Leadership isn't a privilege to do less, it's a responsibility to do more.
