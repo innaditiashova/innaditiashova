@@ -1,5 +1,5 @@
 ### Hi, I'm Inna 👩‍💻 nice e-meeting you 👋 
-Former Dev Team Lead of the [Fiverr Logo Maker](https://www.fiverr.com/logo-maker) project. I have 7+ years of experience in Web Development and 2+ years in leadership. Committed to delivering complex yet ✨ _aesthetic_ ✨ user-centric software solutions. Love to explore and learn new things 🕵️‍♀️.</br>
+Ex EM @ Netflix UI Components Library & former Dev Team Lead of the [Fiverr Logo Maker](https://www.fiverr.com/logo-maker) project. I have 10 years of experience in Web Development and 4+ years in leadership. Committed to delivering complex yet ✨ _aesthetic_ ✨ user-centric software solutions. Love to explore and learn new things 🕵️‍♀️.</br>
 I build cohesive and high-performing teams where everyone feels heard and valued.
 
 > Leadership isn't a privilege to do less, it's a responsibility to do more.
@@ -9,7 +9,6 @@ I can do more, _do you?_ 😎
 ____
 
 * 🧘‍♀️ I’m currently on a sabbatical leave
-* 📖 Now reading "Find Your Why" by Simon Sinek
 * 👯 I’m looking to collaborate on women-led commercial projects
 * 💬 Ask me anything, and I'll find an answer for you
 * 📫 How to reach me: [linkedin](https://www.linkedin.com/in/inna-ditiashova/)
